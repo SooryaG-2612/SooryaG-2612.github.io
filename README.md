@@ -1,2 +1,2 @@
-# Space_Drugs.github.io
+# Soorya.github.io
 Blog on Modern Chemistry
